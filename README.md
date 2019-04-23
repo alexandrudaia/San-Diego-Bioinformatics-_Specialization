@@ -1,3 +1,3 @@
 # San-Diego-Bioinformatics-_Specialization
 
-https://user-images.githubusercontent.com/7158671/56598465-37465c00-65fd-11e9-8843-85ea11bf5822.png
+![dn1](https://user-images.githubusercontent.com/7158671/56598550-5b09a200-65fd-11e9-83d8-85362f9bfc66.jpeg)
